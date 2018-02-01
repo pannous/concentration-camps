@@ -1,8 +1,6 @@
 # Close North Korean concentration camps
 
-[North Korean Prisons Are Worse Than Nazi Concentration Camps, Says Holocaust Survivor](
-https://www.huffingtonpost.com/entry/north-korean-prisons-nazi-camps_us_5a2fad6ce4b0461754330e3d)  
-The ”Inquiry on Crimes Against Humanity in North Korean Political Prisons” documents atrocities inside the country’s prisons, where an estimated 80,000 to 130,000 people are being held.
+According to reports from Amnesty International and the U.S. Committee for Human Rights in North Korea, by 2017 an estimated 200,000 prisoners[4] are incarcerated in camps that are dedicated to political crimes, and subjected to forced labor, physical abuse, execution[5] and human experimentation. [North Korean Prisons Are Worse Than Nazi Concentration Camps, Says Holocaust Survivor](https://www.huffingtonpost.com/entry/north-korean-prisons-nazi-camps_us_5a2fad6ce4b0461754330e3d) 
 
 # What can be done to close North Korean concentration camps?
 
