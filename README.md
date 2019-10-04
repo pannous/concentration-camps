@@ -9,4 +9,4 @@ According to reports from Amnesty International and the U.S. Committee for Human
 * support those [organizations](../../wiki/organizations) with money, words or work
 * [inform](../../wiki/evidence) everyone about one of the biggest half-secret humanitarian desasters of all time
 * Face your fears. Some who investigated these matters lost sleep to nightmares.
-* keep [reminding](../../wiki/evidence) me, yourself and others about this shameful tragedy
+* fork this repository and keep [reminding](../../wiki/evidence) me, yourself and others about this shameful tragedy
