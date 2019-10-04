@@ -5,6 +5,7 @@ According to reports from Amnesty International and the U.S. Committee for Human
 # How can I help to close Korean concentration camps?
 
 * Spread the [evidence](../../wiki/evidence), *write* to newspapers, governors, friends
+* Let us **keep this issue on the frontpage** until it is resolved
 * Find [organizations](../../wiki/organizations) dedicated to the task
 * support those [organizations](../../wiki/organizations) with money, words or work
 * [inform](../../wiki/evidence) everyone about one of the biggest half-secret humanitarian desasters of all time
